@@ -1,2 +1,2 @@
 # DSA
-just urik
+just normal ga peta naku emi DSA radhu practice make man .......
